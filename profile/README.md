@@ -1,4 +1,4 @@
-# Ganna Parchi Calendar: Check UP Ganna Parchi Calendar 2024-25 | caneup.in | Cane UP  
+# Ganna Parchi Calendar: Check UP Ganna Parchi Calendar 2025 | caneup.in | Cane UP | UP Cane Enquiry  
 
 ## Ganna Parchi Calendar  
 
